@@ -1,0 +1,17 @@
+<article class="post">
+  <h1 >{{ page.title | downcase }}</h1>
+
+  <div class="entry">
+    {{ content }}
+  </div>
+
+  <div class="date">
+    — {{ page.date | date: "%B %e, %Y" }}
+  </div>
+
+  <div class="return">
+    <a class="return-btn" href="/">< back</a>
+  </div>
+
+  {% include disqus.html %}
+</article>

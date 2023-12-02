@@ -1,0 +1,23 @@
+---
+layout: post
+title: 'almost too vulnerable'
+description: ''
+categories: []
+keywords: []
+date: '2023-11-14T01:42:09.000Z'
+slug: /almost-too-vulnerable
+---
+I’m laughing contemplating about what I might talk in this entry. That’s an amusing thought. I wish I knew what I was writing before I started these posts but I never do. Honestly, I feel like I owe you and myself honesty. I’ve paid a price for that honesty in terms of losing potential partners because my shit is *‌too* out there. So be it.<!--more-->
+This actually feels almost too vulnerable but I’ve been confronting the part of my shadow that I’ve identified as satan in the past couple of weeks. I honestly view this part of me as the devil and have worked hard to split them off from my personality. However, they rear their “ugly” head time to time and I find myself ashamed and feeling guilty. I know that this isn’t how existence is to be.
+There are parts of me that aren’t flattering. Many. I would love to bury them and keep them underground to save face but I choose again and again otherwise. I’m at least as human as you, friend.
+I don’t consider humans to be intrinsically flawed. This is a departure from my evangelical upbringing. I consider us all to be simultaneously divine and human—fallible and part of the perfection which binds together all creation. And I finally went back to seminary!
+For those that don’t know, I grew up evangelical. I left that tradition six years ago. It was both one of the most liberating and painful experiences I can recall. Fuck.
+At the time, I was married—to a woman I’d met in the church in the same bible study. We quickly established that we couldn’t communicate and didn’t have the resources to establish that communication so we divorced in four years—one was spent separated communicating through lawyers and email, so more like three.
+I’ve been particularly dark in evaluating myself the past few posts. Honestly, that’s easiest for me—being less than generous in my self-evaluation. That poor self-image has led at least a couple of people away from romantic interest.
+No, this post isn't to convince people to date me; fuck that. I take personally, yes, when people use my writing as a means to disconnect from me. It hurts. Deeply.
+Today is a new day. I’m merely human, which means that I fuck up some things and do others really well! I’m not merely garbage or satan.
+I had a vision the other day where satan surprised me and I envisioned myself as him. I realized that I envisioned myself as him and found this conceptualization easier than confronting the closed off part of myself. My work was cut out for me.
+It was terrifying, this satan character inserting himself into my consciousness. Fuck. He snuck in just beyond my vision. I saw that he was the parts of me that I identify as masculine and I’ve kept underground, therefore they’ve become toxic. This part of me received a sincere apology.
+I’m so sorry, I said to myself. They deserved at least that. I had let them down and I needed to apologize and ask forgiveness.
+This being said, I am convinced that I’m a fraud, an imposter. I’m not brand new and I’m also not a stalwart in my field. I think this syndrome finds us all when we are doing work that aligns with our sense of purpose.
+Let’s fucking go, friends. Be you and I’ll be me. Also, let me know if there’s anything you want me to talk about that I haven’t yet. We’re in this together. Be well.
